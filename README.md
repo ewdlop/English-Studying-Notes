@@ -12,7 +12,6 @@ https://magoosh.com/
 https://www.princetonreview.com/college/sat-test-prep
 
 ## 
-varsity tutors vs wyzant vs 
+Varsity tutors vs Wyzant vs 
 
 https://www.reddit.com/r/learnmath/comments/15au40g/mathnasium_vs_kumon/
-
