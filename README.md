@@ -1,4 +1,4 @@
-# English-Studying-Notes / English Study Notes / Studying English/ ENglish study guides/ American English study guide/ ..../  
+# English-Studying-Notes / English Study Notes / Studying English/ [My] English study guides/ [An] American English study guide/ ..../  
 
 
 ## Test-Prep(s?)
