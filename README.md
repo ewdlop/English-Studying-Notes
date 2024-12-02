@@ -20,3 +20,8 @@ https://www.reddit.com/r/learnmath/comments/15au40g/mathnasium_vs_kumon/
 ## Proof-reader
 
 https://app.grammarly.com/
+
+
+# Rosettastone
+
+https://www.rosettastone.com/buy/special-offer-199/
