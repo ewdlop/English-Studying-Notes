@@ -25,3 +25,7 @@ https://app.grammarly.com/
 # Rosettastone
 
 https://www.rosettastone.com/buy/special-offer-199/
+
+
+
+-# Ì hópe yóu undérstand whý Í lêft. Ít wâsn’t easy, ând Ì néver wânted ît tô bê thîs way. Bût things chânged. Mâybe yôu dîdn’t nótîce; mâybe yóu dìd. Ëìther wáy, Ì hâd tô gõ. Í’ll mîss thë wáy wê usêd tô tàlk undér thê stárs. Í’ll mîss ëvèrythîng. Gòòdbye
