@@ -1,4 +1,6 @@
-The **Yucky and Yikes Duo** sounds like a hilariously chaotic pair of characters! Here's a fun breakdown of who they could be, whether as comedic personas, characters in a story, or even a metaphorical duo:
+# Who Are Yucky and Yikes
+
+## The **Yucky and Yikes Duo** sounds like a hilariously chaotic pair of characters! Here's a fun breakdown of who they could be, whether as comedic personas, characters in a story, or even a metaphorical duo:
 
 ---
 
